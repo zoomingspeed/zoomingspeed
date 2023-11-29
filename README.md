@@ -1,4 +1,4 @@
-Hi, I am zoomingspeed. I grew up with gaming so I thought that I should really get into programming, and look at me now. 
+computers are cooooll
 
 # THIS CAN GET UPDATED
 
