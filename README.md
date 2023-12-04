@@ -1,3 +1,3 @@
 computers are cooooll
 
-if my public repos go poo poo please let me know
+if you are seeing my github profile then follow me or else ur stinky
